@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FiveDeltaOne
+- 👀 I’m interested in Roleplay, HTML and CSS Coding
+- 🌱 I’m currently learning HTML, CSS, Node.js, Python
+- 💞️ I’m looking to collaborate on ___________________
+- 📫 How to reach me: On discord @FiveDeltaOne#3270

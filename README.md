@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @FiveDeltaOne
 - 🔨 I am a FiveM Dev
 - 🧑 I love to Roleplay
-- 🤯 I totally a certified licenced genius
+- 🤯 I am totally a certified licenced genius
